@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sab.design
+- 👋 Hi, I’m Sabrina Rosa Kasa
 - 👀 I’m interested in Design, mostly Brand and UX/UI
 - 💞️ I’m currently learning Graphic Design
 - 📫 How to reach me: text me on my social media @designbysakuraa or my email
